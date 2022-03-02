@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MelissaSmp
+- 👀 I’m interested in les ressources humaines
+- 🌱 I’m currently learning  un MASTER 2 RH
+- 💞️ Je cherche à m'améliorer sur Canva et avoir un large choix pour des présentations pro ou persp
